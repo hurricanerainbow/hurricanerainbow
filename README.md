@@ -1,4 +1,4 @@
-- 👋 Hi, we're a two-spirit Two-Spirit, one of us is Hurricane, the other is Rainbow. Current first legal name is Eric. we've been called, Eerie, Rainbow.
+- 👋 Hi, we're a three spirited Two-Spirit, going collectively as Rainbow Sky Dancer
 - 👀 we have a lot of special interests
 - 🌱 we try to learn as much as possible and have it be fun too is **chef's kiss**
 - 💞️ 
